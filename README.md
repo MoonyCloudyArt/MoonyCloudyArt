@@ -1,5 +1,17 @@
 ### Hi , ! Im Ezra or Eclipse ! ! !
 
+basic info:
+
+names: Vinny/Ezra , Shadow Milk , Eclipse , Maia + more .
+pronouns: Any prns
+
+  　　𓏶　　𓎟 ͏͡⏝　　
+ 
+I dont get online as much anymore due to being busy with school and trying to get a job.
+ 　　𓏶　　𓎟 ͏͡⏝　　
+
+   Dni : Transphobes , Racists , Ableists , Sexists , Homophobes , Extreme right/leftists , anyone under 13 years old , Ageplayers , Trolls .
+   I block freely.
 <!--
 **MoonyCloudyArt/MoonyCloudyArt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
