@@ -1,10 +1,10 @@
-### Hi , Im Vinny/Ezra or Eclipse [sys] ! ! !
+### Hi , Im Vinny/Ezra or wtvr you know me as ! ! !
 
 basic info:
 
-names: Vinny/Ezra , Shadow Milk , Eclipse , Maia + more .
+names: Vinny/Ezra , Sunny , SMilk , Eclipse , Maia + more .
 
-pronouns: Any prns
+pronouns: Any prns , preferably They/Them .
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
