@@ -15,6 +15,8 @@ I dont get online as much anymore due to being busy with school and trying to ge
    Dni : Transphobes , Racists , Ableists , Sexists , Homophobes , Extreme right/leftists , anyone under 13 years old , Ageplayers , Trolls .
   
    I block freely.
+
+   <img width="735" height="490" alt="Image" src="https://github.com/user-attachments/assets/68c00448-fdb8-49ce-9bb8-24dd2a39025e" />
    
 <!--
 **MoonyCloudyArt/MoonyCloudyArt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
