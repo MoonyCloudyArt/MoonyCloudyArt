@@ -6,6 +6,8 @@ names: Vinny/Ezra , Sunny , SMilk , Eclipse , Maia + more .
 
 pronouns: Any prns , preferably They/Them .
 
+Rls Status: Taken by my amazing boyfriend, Oliver !! (I WISSHHH HE WOULD GET PONYTOWNN AND WASNT THAT BUSY IRLL 👀)
+
   　　𓏶　　𓎟 ͏͡⏝　　
  
 I dont get online as much anymore due to being busy with school and trying to get a job + im grounded.
