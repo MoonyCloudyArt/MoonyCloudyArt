@@ -18,6 +18,8 @@ I dont get online as much anymore due to being busy with school and trying to ge
   
    I block freely.
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&cover_image=true&theme=default&show_offline=true&background_color=e1c27f&interchange=false&profanity=false&hide_remaster=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&redirect=true)
+
    <img width="735" height="490" alt="Image" src="https://github.com/user-attachments/assets/68c00448-fdb8-49ce-9bb8-24dd2a39025e" />
 
    Ponies you'll most likely see me in ^_^
