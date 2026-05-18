@@ -1,22 +1,27 @@
 ### Hi , Im Vinny/Ezra or wtvr you know me as ! ! !
 
-basic info:
 
-names: Vinny/Ezra , Sunny , SMilk , Eclipse , Maia + more .
 
-pronouns: Any prns , preferably They/Them .
+Basic Info:
+
+
+Names: Vinny/Ezra , Sunny , SMilk , Eclipse + more . (ask to use irl name.)
+
+
+Pronouns: Any prns , preferably They/Them .
+
 
 Rls Status: Taken by my amazing boyfriend, Oliver !! (I WISSHHH HE WOULD GET PONYTOWNN AND WASNT THAT BUSY IRLL 👀)
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
-I dont get online as much anymore due to being busy with school and trying to get a job + im grounded.
+I will be offline for a while in summer due to planing to be out of the country and celebrate many quince's !!
 
  　　𓏶　　𓎟 ͏͡⏝　　
 
-   Dni : Transphobes , Racists , Ableists , Sexists , Homophobes , Extreme right/leftists , anyone under 13 years old , Ageplayers , Trolls .
+   Dni : Transphobes , Racists , Ableists , Sexists , Homophobes , Extreme right/leftists , anyone under 13 years old , Ageplayers , Trolls , Bigots , TCOAAL fans , Vivzie Fans/supporters , extremly sensitive people , People who watch gore , Pro/Darkshippers .
   
-   I block freely.
+   I block and hide freely .
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&cover_image=true&theme=default&show_offline=true&background_color=e1c27f&interchange=false&profanity=false&hide_remaster=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&redirect=true)
 
