@@ -11,11 +11,12 @@ Names: Vinny/Ezra , Sunny , SMilk , Eclipse + more . (ask to use irl name.)
 Pronouns: Any prns , preferably They/Them .
 
 
-Rls Status: Taken by my amazing boyfriend, Oliver !! (I WISSHHH HE WOULD GET PONYTOWNN AND WASNT THAT BUSY IRLL 👀)
+Rls Status: Taken by my amazing boyfriend, Oliver !! 
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
-I will be offline for a while in summer due to planing to be out of the country and celebrate many quince's !!
+I can pirate movies/shows, so if you want anything whisper me or leave a message in my atabook ! It takes a few hours to load into the google drive but I will do requests ! 
+Link for the google drive: https://drive.google.com/drive/folders/1nCGjenPFY8jdwkIaG1mVpOFWUm2q6NL-?usp=drive_link
 
  　　𓏶　　𓎟 ͏͡⏝　　
 
