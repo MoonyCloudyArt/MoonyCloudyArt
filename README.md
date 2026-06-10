@@ -15,8 +15,8 @@ Rls Status: Taken by my amazing boyfriend, Oliver !!
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
-I can pirate movies/shows, so if you want anything whisper me or leave a message in my atabook ! It takes a few hours to load into the google drive but I will do requests ! 
-Link for the google drive: https://drive.google.com/drive/folders/1nCGjenPFY8jdwkIaG1mVpOFWUm2q6NL-?usp=drive_link
+I can pirate movies/shows, so if you want anything whisper me or leave a message in my atabook ! It takes a few hours to load into the site but I will do requests ! 
+Link for the site: https://archive.org/details/@moony_cloudy_art/uploads)
 
  　　𓏶　　𓎟 ͏͡⏝　　
 
