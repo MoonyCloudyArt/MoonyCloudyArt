@@ -12,6 +12,7 @@ Pronouns: Any prns , preferably They/Them .
 
 
 Rls Status: Taken by my amazing boyfriend, Oliver !! 
+** HIS STRAWPAGE !! : https://stinkypower.straw.page **
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
