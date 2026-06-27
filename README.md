@@ -23,10 +23,7 @@ Link for the site: https://archive.org/details/@moony_cloudy_art/uploads)
 
    Dni : Transphobes , Racists , Ableists , Sexists , Homophobes , Extreme right/leftists , anyone under 13 years old , Ageplayers , Trolls , Bigots , TCOAAL fans , Vivzie Fans/supporters , extremly sensitive people , People who watch gore , Pro/Darkshippers .
   
-   I block and hide freely .
-
-   Join my discord server for roblox !!
-   https://discord.gg/4AhxNvtV48
+   I block and hide rarely but freely .
 
    Other strawpages:
    https://vinnysintrooo.straw.page/  
