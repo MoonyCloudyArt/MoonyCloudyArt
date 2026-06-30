@@ -26,7 +26,7 @@ Link for the site: https://archive.org/details/@moony_cloudy_art/uploads)
    I block and hide rarely but freely .
 
    Other strawpages:
-   https://vinnysintrooo.straw.page/  
+  https://vinzyume.straw.page/ - yumme info.
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&cover_image=true&theme=default&show_offline=true&background_color=e1c27f&interchange=false&profanity=false&hide_remaster=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&redirect=true)
 ** art is not mine **
