@@ -11,7 +11,7 @@ Names: Vinny/Ezra , Sunny , SMilk , Eclipse + more . (ask to use irl name.)
 Pronouns: Any prns , preferably They/Them .
 
 
-Rls Status: Taken by my amazing boyfriend, Oliver !! 
+Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !! 
 ** HIS STRAWPAGE !! : https://stinkypowerr.straw.page **
 
   　　𓏶　　𓎟 ͏͡⏝　　
