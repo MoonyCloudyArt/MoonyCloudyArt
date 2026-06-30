@@ -16,7 +16,7 @@ Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !!
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
-I can pirate movies/shows, so if you want anything whisper me or leave a message in my atabook ! It takes a few hours to load into the site but I will do requests ! 
+I pirate stuff I like, such as movies.
 Link for the site: https://archive.org/details/@moony_cloudy_art/uploads)
 
  　　𓏶　　𓎟 ͏͡⏝　　
