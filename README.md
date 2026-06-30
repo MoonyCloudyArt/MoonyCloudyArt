@@ -8,7 +8,7 @@ Basic Info:
 Names: Vinny/Ezra , Sunny , SMilk , Eclipse + more . (ask to use irl name.)
 
 
-Pronouns: Any prns , preferably They/Them .
+Pronouns: Any prns , PREFERABLY They/Them .
 
 
 Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !! 
@@ -16,7 +16,7 @@ Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !!
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
-I pirate stuff I like, such as movies.
+I pirate stuff I like.
 Link for the site: https://archive.org/details/@moony_cloudy_art/uploads)
 
  　　𓏶　　𓎟 ͏͡⏝　　
