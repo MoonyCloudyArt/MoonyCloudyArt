@@ -29,11 +29,11 @@ Link for the site: https://archive.org/details/@moony_cloudy_art/uploads)
   https://vinzyume.straw.page/ - yumme info.
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&cover_image=true&theme=default&show_offline=true&background_color=e1c27f&interchange=false&profanity=false&hide_remaster=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&redirect=true)
-** art is not mine **
-   <img width="735" height="490" alt="Image" src="https://github.com/user-attachments/assets/68c00448-fdb8-49ce-9bb8-24dd2a39025e" />
 
-   Ponies you'll most likely see me in ^_^
-   <img width="208" height="248" alt="Image" src="https://github.com/user-attachments/assets/c30833b8-0359-4649-9bf7-ee63588ef032" /> <img width="196" height="232" alt="Image" src="https://github.com/user-attachments/assets/74692e9a-2e46-4280-ac4a-85f61f67703e" />
+Extra:
+<img width="150" height="20" alt="a3" src="https://github.com/user-attachments/assets/09338a12-0c6b-475a-8fe8-aefcf5bce949" />
+
+
    
 <!--
 **MoonyCloudyArt/MoonyCloudyArt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
