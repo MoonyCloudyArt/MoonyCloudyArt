@@ -17,7 +17,7 @@ Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !!
   　　𓏶　　𓎟 ͏͡⏝　　
  
 I pirate stuff I like.
-Link for the site: https://archive.org/details/@moony_cloudy_art/uploads)
+Link for the site: https://archive.org/details/@moony_cloudy_art/uploads
 
  　　𓏶　　𓎟 ͏͡⏝　　
 
