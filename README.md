@@ -1,4 +1,4 @@
-### Hi , Im Vinny/Ezra or wtvr you know me as ! ! !
+### Read byi.
 
 
 
