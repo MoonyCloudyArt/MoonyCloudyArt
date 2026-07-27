@@ -17,8 +17,7 @@ Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !!
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
-I pirate stuff I like.
-Link for the site: https://archive.org/details/@moony_cloudy_art/uploads
+WIP.
 
  　　𓏶　　𓎟 ͏͡⏝　　
 
@@ -27,7 +26,11 @@ Link for the site: https://archive.org/details/@moony_cloudy_art/uploads
    I block and hide rarely but freely .
 
    Other strawpages:
+   
   https://vinzyume.straw.page/ - yumme info.
+  https://sleepygimmicks.straw.page - gimmick page
+  https://vinnysintrooo.straw.page - old strawpage
+  https://sleepyconstellationcollective.straw.page - even older strawpage
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&cover_image=true&theme=default&show_offline=true&background_color=e1c27f&interchange=false&profanity=false&hide_remaster=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&redirect=true)
 
