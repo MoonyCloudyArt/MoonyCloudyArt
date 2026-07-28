@@ -28,8 +28,11 @@ WIP.
    Other strawpages:
    
   https://vinzyume.straw.page/ - yumme info.
+  
   https://sleepygimmicks.straw.page - gimmick page
+  
   https://vinnysintrooo.straw.page - old strawpage
+  
   https://sleepyconstellationcollective.straw.page - even older strawpage
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&cover_image=true&theme=default&show_offline=true&background_color=e1c27f&interchange=false&profanity=false&hide_remaster=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&redirect=true)
