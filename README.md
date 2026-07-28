@@ -36,6 +36,7 @@ WIP.
   https://sleepyconstellationcollective.straw.page - even older strawpage
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&cover_image=true&theme=default&show_offline=true&background_color=e1c27f&interchange=false&profanity=false&hide_remaster=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&cover_image=true&theme=novatorem&show_offline=true&background_color=7b6060&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 Extra:
 
