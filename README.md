@@ -1,5 +1,5 @@
 <img width="1797" height="565" alt="Image" src="https://github.com/user-attachments/assets/74d2853d-57f5-47fc-a005-f61fd3a31451" />
-### Read byi.
+Read byi.
 
 
 
