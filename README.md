@@ -1,18 +1,18 @@
 <img width="1797" height="565" alt="Image" src="https://github.com/user-attachments/assets/74d2853d-57f5-47fc-a005-f61fd3a31451" />
-Read byi.
 
 
 
 Basic Info:
 
 
-Names: Vinny/Ezra , Sunny , SMilk , Eclipse + more . (ask to use irl name.)
+Names: Vinny/Ezra , Sunny + more . (ask to use irl name.)
 
 
 Pronouns: Any prns , PREFERABLY They/Them .
 
 
 Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !! 
+
 ** HIS STRAWPAGE !! : https://stinkypowerr.straw.page **
 
   　　𓏶　　𓎟 ͏͡⏝　　
