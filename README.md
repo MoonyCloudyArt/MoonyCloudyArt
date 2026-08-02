@@ -2,7 +2,7 @@
 
 
 
-<span style="color: green"> hi </span>
+
 Basic Info:
 
 
@@ -18,7 +18,7 @@ Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !!
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
-WIP.
+<font color="green">hi</font>
 
  　　𓏶　　𓎟 ͏͡⏝　　
 
