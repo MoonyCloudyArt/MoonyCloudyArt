@@ -3,7 +3,7 @@
 
 
 
-Basic Info:
+<h1>Basic Info:</h1>
 
 
 Names: Vinny/Ezra , Sunny + more . (ask to use irl name.)
