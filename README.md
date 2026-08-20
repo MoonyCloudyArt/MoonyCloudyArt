@@ -26,7 +26,7 @@ WIP
   
    I block and hide rarely but freely .
 
-   Other strawpages:
+   <h1>Other strawpages:</h1>
    
   https://vinzyume.straw.page/ - yumme info.
   
