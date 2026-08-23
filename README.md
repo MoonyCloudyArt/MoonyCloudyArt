@@ -6,7 +6,7 @@
 <h1>Basic Info:</h1>
 
 
-Names: Vinny/Ezra , Sunny + more . (ask to use irl name.)
+<b>Names: Vinny/Ezra , Sunny + more . (ask to use irl name.)</b>
 
 
 Pronouns: Any prns , PREFERABLY They/Them .
@@ -14,7 +14,6 @@ Pronouns: Any prns , PREFERABLY They/Them .
 
 Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !! 
 
-** HIS STRAWPAGE !! : https://stinkypowerr.straw.page **
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
@@ -27,8 +26,10 @@ WIP
    I block and hide rarely but freely .
 
    <h1>Other strawpages:</h1>
-   
-  https://vinzyume.straw.page/ - yumme info.
+
+
+   <a href="https://vinzyume.straw.page/">"Yume info</a>
+
   
   https://sleepygimmicks.straw.page - gimmick page
   
