@@ -28,10 +28,10 @@ WIP
    <h1>Other strawpages:</h1>
 
 
-   <a href="https://vinzyume.straw.page/">"Yume info</a>
+   <a href="https://vinzyume.straw.page/">Yume info</a>
 
   
-  https://sleepygimmicks.straw.page - gimmick page
+  <a href="https://sleepygimmicks.straw.page">gimmick page</a>
   
   https://vinnysintrooo.straw.page - old strawpage
   
