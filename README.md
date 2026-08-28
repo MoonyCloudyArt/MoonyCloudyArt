@@ -28,6 +28,8 @@ WIP
    <h1>Other strawpages:</h1>
 
 
+<a href="https://sl3epysystem.straw.page/">AkiAngle Themed</a>
+
    <a href="https://vinzyume.straw.page/">Yume info</a>
 
   
