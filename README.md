@@ -25,8 +25,10 @@ WIP
   
    I block and hide rarely but freely .
 
-   <h1>Other strawpages:</h1>
+   <h1>Links:</h1>
 
+
+<a href="https://wwillgraham.straw.page/">Will Graham Themed</a>
 
 <a href="https://sl3epysystem.straw.page/">AkiAngle Themed</a>
 
