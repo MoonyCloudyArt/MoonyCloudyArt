@@ -9,10 +9,10 @@
 <b>Names: Vinny/Ezra , Sunny + more . (ask to use irl name.)</b>
 
 
-Pronouns: Any prns , PREFERABLY They/Them .
+<b>Pronouns: Any prns , PREFERABLY They/Them .</b>
 
 
-Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !! 
+<b>Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !!</b>
 
 
   　　𓏶　　𓎟 ͏͡⏝　　
