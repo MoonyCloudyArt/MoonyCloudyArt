@@ -28,6 +28,8 @@ WIP
    <h1>Links:</h1>
 <B>Socials</B>
 
+<a href="https://discord.com/users/1216464296918126623">Discord</a>
+
 <a href="https://www.youtube.com/@Moony_Cloudy-Art">YouTube</a>
 
 <a href="https://www.instagram.com/sleepysyst3m/">Instagram</a>
