@@ -26,7 +26,15 @@ WIP
    I block and hide rarely but freely .
 
    <h1>Links:</h1>
+<B>Socials</B>
 
+<a href="https://www.youtube.com/@Moony_Cloudy-Art">YouTube</a>
+
+<a href="https://www.instagram.com/sleepysyst3m/">Instagram</a>
+
+<a href="https://www.tiktok.com/@_th3_l0v3r_p3rs0n_">TikTok</a>
+
+<B>Strawpages</B>
 
 <a href="https://wwillgraham.straw.page/">Will Graham Themed</a>
 
