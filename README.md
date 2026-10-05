@@ -12,7 +12,7 @@
 <b>Pronouns: Any prns , PREFERABLY They/Them .</b>
 
 
-<b>Rls Status: Taken by my amazing boyfriend, Oliver/Faeleen !!</b>
+<b>Rls Status: Single !!</b>
 
 
   　　𓏶　　𓎟 ͏͡⏝　　
