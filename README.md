@@ -21,8 +21,6 @@ WIP
 
  　　𓏶　　𓎟 ͏͡⏝　　
 
-   Dni : Transphobes , Racists , Ableists , Sexists , Homophobes , Extreme right/leftists , anyone under 13 years old , Ageplayers , Trolls , Bigots , TCOAAL fans , Vivzie Fans/supporters , extremly sensitive people , People who watch gore , Pro/Darkshippers .
-  
    I block and hide rarely but freely .
 
    <h1>Links:</h1>
