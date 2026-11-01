@@ -17,7 +17,7 @@
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
-WIP
+Im a really anxious person so I may not talk to you first </3 Pls feel free to talk with me!!
 
  　　𓏶　　𓎟 ͏͡⏝　　
 
