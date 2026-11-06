@@ -2,9 +2,8 @@
 
 
 
-<p style="text-align: center">
-<h1>Basic Info:</h1>
 
+<h1 align="center">Basic Info:</h1>
 
 <b>Names: Vinny/Ezra , Sunny + more . (ask to use irl name.)</b>
 
@@ -17,13 +16,13 @@
 
   　　𓏶　　𓎟 ͏͡⏝　　
  
-Im a really anxious person so I may not talk to you first </3 Pls feel free to talk with me!!
+<b>Im a really anxious person so I may not talk to you first </3 Pls feel free to talk with me!! </b>
 
  　　𓏶　　𓎟 ͏͡⏝　　
 
-   I block and hide rarely but freely .
+ <b> I block and hide rarely but freely . </b>
 
-   <h1>Links:</h1>
+   <h1 align="center">Links:</h1>
 <B>Socials</B>
 
 
@@ -55,7 +54,7 @@ Im a really anxious person so I may not talk to you first </3 Pls feel free to t
 
 </p>
 
-<h1>Extra:</h1>
+<h1 align="center">Extra:</h1>
 </span>
 <img width="150" height="20" alt="a3" src="https://github.com/user-attachments/assets/09338a12-0c6b-475a-8fe8-aefcf5bce949" /> <img width="150" height="20" alt="a17 (1)" src="https://github.com/user-attachments/assets/9e21c56e-a8f0-4803-bfb5-1cae04d02231" /> <img width="150" height="20" alt="a38" src="https://github.com/user-attachments/assets/d1085083-5d2e-4bcb-895f-8178520e9d5e" /> <img width="150" height="20" alt="a41" src="https://github.com/user-attachments/assets/240e06a4-06af-4920-a31b-e61b94814a28" /> <img width="150" height="20" alt="g44" src="https://github.com/user-attachments/assets/06d2b36c-31d8-4548-8666-d28af05ec590" /> <img width="150" height="20" alt="g100" src="https://github.com/user-attachments/assets/13b6816a-0182-4366-bedb-890f7b584a81" /> <img width="150" height="20" alt="h57" src="https://github.com/user-attachments/assets/5f4a899b-f19b-42d1-b386-d0f07f43b689" /> <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/53a0f612-75e5-47ff-9d22-db121d3ebab8" /> <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/2361644e-6c2b-4cce-bb05-b865907114b9" /> <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/3f945af8-5594-4bdf-987c-b30875dd6a10" /> <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/ffaa1dd0-dbdc-410d-9746-acbb7fbbf76f" /> 
 
