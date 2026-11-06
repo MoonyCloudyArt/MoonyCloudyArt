@@ -4,51 +4,65 @@
 
 
 <h1 align="center">Basic Info:</h1>
-
+<p align="center">
 <b>Names: Vinny/Ezra , Sunny + more . (ask to use irl name.)</b>
 
-
+<p align="center">
 <b>Pronouns: Any prns , PREFERABLY They/Them .</b>
 
-
+<p align="center">
 <b>Rls Status: Taken by my amazing boyfriend !!</b>
 
-
+<p align="center">
   　　𓏶　　𓎟 ͏͡⏝　　
- 
+</p>
+ <p align="center">
 <b>Im a really anxious person so I may not talk to you first </3 Pls feel free to talk with me!! </b>
-
+ </p>
+ <p align="center">
  　　𓏶　　𓎟 ͏͡⏝　　
-
+   </p>
+<p align="center">
  <b> I block and hide rarely but freely . </b>
-
+</p>
    <h1 align="center">Links:</h1>
+   
+   <p align="center">
 <B>Socials</B>
-
-
+   </p>
+<p align="center">
 <a href="https://discord.com/users/1216464296918126623">Discord</a>
-
+</p>
+<p align="center">
 <a href="https://www.youtube.com/@Moony_Cloudy-Art">YouTube</a>
-
+</p>
+<p align="center">
 <a href="https://www.instagram.com/sleepysyst3m/">Instagram</a>
-
+</p>
+<p align="center">
 <a href="https://www.tiktok.com/@_th3_l0v3r_p3rs0n_">TikTok</a>
-
+</p>
+<p align="center">
 <B>Strawpages</B>
-
+</p>
+<p align="center">
 <a href="https://wwillgraham.straw.page/">Will Graham Themed</a>
-
+</p>
+<p align="center">
 <a href="https://sl3epysystem.straw.page/">AkiAngle Themed</a>
-
+</p>
+<p align="center">
    <a href="https://vinzyume.straw.page/">Yume info</a>
-
-  
+</p>
+  <p align="center">
   <a href="https://sleepygimmicks.straw.page">Gimmick page</a>
-  
+  </p>
+  <p align="center">
   <a href="https://vinnysintrooo.straw.page">Old Strawpage</a>
-  
+  </p>
+  <p align="center">
   <a href="https://sleepyconstellationcollective.straw.page">Even Older Strawpage</a>
-
+  </p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=aew9m3zed4fx5uijoaymbugvg&cover_image=true&theme=novatorem&show_offline=true&background_color=7b6060&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
